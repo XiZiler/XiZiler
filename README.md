@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🔭 I’m currently working on 「孕息」
+- 📫 How to reach me: 710887689@qq.com
